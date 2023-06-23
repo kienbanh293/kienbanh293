@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kienbanh293
+- 👋 Hi, I’m @Kien
 - 👀 I’m interested in playing games
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on my girl friend
